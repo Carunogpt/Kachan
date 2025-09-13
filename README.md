@@ -1,6 +1,4 @@
-#KACHAN
-качан сайт скачать бесплатно 
-<!DOCTYPE html> <html lang=ru class="dbgkrkyus idc0_343"><!--
+ <!DOCTYPE html> <html lang=ru class="dbgkrkyus idc0_343"><!--
 --><meta charset=utf-8>
 <meta name=viewport content="width=device-width, initial-scale=1.0, user-scalable=yes">
 <title>ASCII пачан Каруно девелопер </title>
@@ -84,3 +82,4 @@ vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvcvuvvccvvuuvvvvvvvvvvvvvvvvvvvvvvvvr{/c|11)/f|(|ftttvvuvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvj|tttjxnuccvvuuvuvvvvvvvvvuvvucnncv(|1((|}}[-_[1)))cvvvuuvuvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+чтоо качан сайт
